@@ -4,4 +4,6 @@ Olá ! Bem vindo ao meu livro de receitas :wave:
 
 - Miojo do Ichirako :ramen:
 
+- Frango assado  :chicken:
+
   
